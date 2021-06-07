@@ -1,5 +1,4 @@
 - 👋 Hi, I’m dheeraj sahani
-- 👀 I wanted to became architect
 - 🌱 I’m currently studying in vidayalankar polytechnic in IT 3rd year
 - 💞️ I’m looking to became entrepreneur
 - 📫 How to reach me ...insta sahanidhiraj924
