@@ -1,5 +1,5 @@
 - 👋 Hi, I’m dheeraj sahani
-- 🌱 I’m currently studying in vidayalankar polytechnic in IT 3rd year
+- 🌱 I’m currently studying in lokmanya tilak engineering college
 - 💞️ I’m looking to became entrepreneur
 - 📫 How to reach me ...insta sahanidhiraj924
 
